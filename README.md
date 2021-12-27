@@ -7,3 +7,4 @@
 #### Rafael Anacleto
 #### Djaffer Vargas dos Passos
 #### Vitor Paulo da Conceição
+#### Laryssa Alves De Carvalho
